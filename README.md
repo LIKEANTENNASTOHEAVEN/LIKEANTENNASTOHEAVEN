@@ -1,6 +1,6 @@
 [https://rentry.co/clairdelune](https://rentry.co/clairdelune)<div>
-[https://x.com/boombloxxed](https://x.com/boombloxxed)<div>
-[https://guns.lol/fivepebbles](https://guns.lol/fivepebbles)<div>
+[https://x.com/boombloxxedalt](https://x.com/boombloxxedalt)<div>
+[https://guns.lol/ANTENNASTOHEAVEN](https://guns.lol/ANTENNASTOHEAVEN)<div>
 
  check my links PLEASE, more information.
  ‎   ‎  ‎  ‎   ‎  ‎  ‎   ‎  ‎  ‎   ‎  ‎  ‎   ‎  ‎  ‎   ‎  ‎  ‎   ‎  ‎ 
