@@ -4,9 +4,6 @@ https://guns.lol/ANTENNASTOHEAVEN
 https://likeantennastoheaven.atabook.org/  
 ↑  
 sign my ata yo
-
- check my links PLEASE for more information.
- ‎
  ![WAR](https://predisasters.neocities.org/Rentry/Ultrakill/1half.png)‎  ‎  ‎   ‎  ‎  ‎   ‎  ‎ 
 ***
  <div align="center">
