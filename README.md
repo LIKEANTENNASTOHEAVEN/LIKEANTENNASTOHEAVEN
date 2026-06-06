@@ -1,13 +1,12 @@
-https://rentry.co/clairdelune<div>
-https://guns.lol/ANTENNASTOHEAVEN<div>
+https://rentry.co/clairdelune  
+https://guns.lol/ANTENNASTOHEAVEN
 
-https://likeantennastoheaven.atabook.org/<div>
-↑ <div>
+https://likeantennastoheaven.atabook.org/  
+↑  
 sign my ata yo
 
  check my links PLEASE, more information.
  ‎
- 
  ![WAR](https://predisasters.neocities.org/Rentry/Ultrakill/1half.png)‎  ‎  ‎   ‎  ‎  ‎   ‎  ‎ 
 ***
  <div align="center">
