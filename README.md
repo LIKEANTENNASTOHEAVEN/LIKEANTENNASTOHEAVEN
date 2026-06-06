@@ -5,7 +5,7 @@ https://likeantennastoheaven.atabook.org/
 ↑  
 sign my ata yo
 
- check my links PLEASE, more information.
+ check my links PLEASE for more information.
  ‎
  ![WAR](https://predisasters.neocities.org/Rentry/Ultrakill/1half.png)‎  ‎  ‎   ‎  ‎  ‎   ‎  ‎ 
 ***
@@ -13,57 +13,75 @@ sign my ata yo
 
  ![](https://komarev.com/ghpvc/?username=LIKEANTENNASTOHEAVEN&style=for-the-badge&color=FF0000&abbreviated=true&label=[MESSAGES.RECIEVED] )
   
- ‎  ‎  ![♡](https://predisasters.neocities.org/Rentry/Ultrakill/LIGHTUPTHENIGHT.png)
+ ‎  ‎  ![LIGHT UP THE NIGHT](https://predisasters.neocities.org/Rentry/Ultrakill/LIGHTUPTHENIGHT.png)
 
-<a href="https://www.youtube.com/watch?v=gL6ryKNcsOg" class="sc-player">Senbonzakura/Hallownest Ode</a>\
-[![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&duration=2000&pause=1000&color=FF0000&center=true&width=1400&height=200&separator=%3C&lines=That+fearsome+name+reverberating+through+the+wastes;%3Cmerit+created+from+the+taming+of+bug+and+beast%3CEstablishing+Hallownest+and+staking+out+distant+borders;%3Ctheir+praises+are+sung+far+and+wide%3CThe+Seals+break%2C+dreams+stained+by+sweet+miasma;%3Creturning+to+your+homeland+to+inherit+old+duties%3CBearing+your+nail%2C+shining+with+frigid+light%2C%3CA+few+houses+are+illuminated+by+the+slanting+rays+of+the+dim+lanterns%3CDuring+past+days+these+streets+were+bustling;%3Cnow+only+empty+homes+remain%3CAll+lured+down+by+the+hope+of+fame+and+fortune%3CLarvae+inhabit+the+shores+of+these+pools%2C%3Cand+moths+chase+the+dazzling+light%3CLusting+for+this+armored+shell+of+steel%2C%3Cmaking+arrogant+claims+of+strength+while+bearing+this+helm%3Cdancing+with+the+bladed+edge+of+silk+and+string%3CThat+stronghold+mantis+nation+at+the+borders%2C%3Cstanding+guard+against+their+enemies+on+their+thrones%3CSeeking+the+cure+to+purge+the+infection%2C+%3Cdesecrating+souls+and+causing+calamity%3CStubbornly+resting+on+this+bench+and+refusing+to+yield%2C%3Cwith+crystals+sprouting+all+over+it%3CPacing+around+its+shrouded+tower%2C%3Cit+collects+the+living+in+jars%3CTempting+its+prey+in+with+various+illusionary+forms%2C%3Cthose+hanging+corpses+have+no+burial+grounds%3CCrossing+blades+with+the+halberd-wielding+fool%2C%3Cblood+spilled+to+please+the+dead+king%3CRain+like+tears+washing+across+the+lonely+city%2C%3Clift+your+head+to+gaze+upon+the+distant+skies%3CSacrifice+yourself+for+Hallownest%E2%80%99s+eternity%2C%3Cshrouded+from+the+ages+Watching+from+the+tip+of+the+cloud-cloaked+Spire;%3Chidden+in+the+Archives+in+the+fog+wreathed+canyon%3CWeaving+webs+within+the+profound+depths+of+the+Beast%E2%80%99s+Den%2C%3Csacrificing+their+souls+to+cast+the+Seals%3CThe+old+station+is+desolate%2C+devoid+of+all+liveliness%3CCrumbling%2C+dilapidated+walls%2C+unrecognizable%2C++once-grand+corridors%3CThe+indistinct+tattered+remains+of+%5Bthis%5D+site+contains+the+pristine+palace+of+long+ago%3CA+kingdom%E2%80%99s+dominating+rule%2C+faded+like+a+fleeting+dream+Sketching+the+land+into+scrolls%2C%3Cthe+spirits%E2%80%99+domain+and+sheer+cliffs+made+familiar+in+travel%3CSmiling+with+gritted+teeth+in+the+face+of+adversity%2C%3Cregretless+death+in+fulfillment+of+an+oath%3CPeacefully+living+in+the+city+amidst+the+well%2C%3Cbearing+old+expertise+with+a+nail%3CDeciphering+battered+tablets+and+mysterious+scrolls%2C%3Cmusing+about+the+unexplained+sacrifice+of+the+shaded+silhouette%3CRampant+arrogance+and+insolent+boasting%2C%3Cdreaming+of+a+hero%E2%80%99s+glory%3CThieving+under+a+false+name%2C%3Ctaking+fortune+and+wares+for+her+own+gain%3CHidden+within+the+treacherous+virid+overgrowth%2C%3Cwielding+a+brush+akin+to+a+nail%3CIsolated+heir+of+the+faded+tribe%2C%3Cpaying+her+dues+by+entrusting+the+dream+nail+to+you%3CThe+goddess+of+moss+enters+slumber%2C%3Csubmerging+herself+in+her+deep+pool+to+conceal+her+presence%3CThe+white+queen+leaves+the+palace%2C%3Cher+roots+binding+the+verdant+garden%3CIntentions+for+eternity%2C%3Cbones+filling+nine+gulfs%3CThe+rise+and+fall+of+a+kingdom%2C%3Clying+in+the+flick+of+a+finger%3CLed+to+this+kingdom+seeking+the+traces+of+gods;%3Cdancing+with+shield+and+nail+to+pray+for+mercy%3CIgniting+the+dream%2C+the+nightmare+visits%2C%3Ca+waltz+between+flame+and+shadow%3CBrethren+filling+these+halls+in+memories%2C%3Cnever+once+abandoning+his+oath%3CMourning+past+love%2C+entrusting+the+delicate+bloom;%3Ctwo+lovers+separated+by+the+vastness+of+life+and+death%3CBearing+a+final+will+with+the+razor+edge+of+a+blade%2C%3Ccontemplating+in+deep+grief+at+the+shores+of+the+blue+lake%3CReceiving+the+king%E2%80%99s+soul%2C+the+ashen+door+opens;%3Cunite+with+the+void%2C+remember+your+past%3CIn+the+temple%2C+two+shadows+become+a+pair;%3Ccontinuing+a+past+will%2C+repaying+this+enmity+with+mercy%3CPointing+your+nail+to+the+clouds%2C%3Cyou+shatter+the+dream+and+cut+down+the+Light!)](https://git.io/typing-svg)\
-***‎@boombl****oxxed*//!~*In*do~! + GABRIEL!! 🩸\
+***‎@boombl****oxxed*//!~*In*do~! + V2 OR GABRIEL!! ⚙️\
 **1**6
 
-She// ミ☆ **A**ny \
+She// ミ☆ **A**ny  
 single 
+  <!-- HOUR 1 -->
+<table>
+<tr>
+<td>
+<details>
+<summary>$\color{#FF0000}{\textsf{ABOUT\_ME}}$</summary>
 
-Hello!! I'm Indo, But I also like if you call me Gabriel, ReGect, or whatever Pony I am lol
-‎‎I'm neurodivergent, please dont treat me any less because of this yo
+$\color{#ff8080}{\textsf{Hello!! My name is Indo!! but you're free to call me Gabriel or V2 Aswell! I am 16 years old and im a girlll}}$<br>$\color{#ff8080}{\textsf{I draw things!! my twitter is @boombloxxed/@boombloxxedALT if you'd like to see!!}}$<br>$\color{#ff8080}{\textsf{I tend to act a bit mechanical when im tired or so on, be patient w me, but please also don't be weird}}$<br><br>$\color{#ff8080}{\textsf{I'm Neurodivergent and very talkative. I prommy im friendly,, My current Hyperfixation is ULTRAKILL!!}}$<br>$\color{#ff8080}{\textsf{I don't tend to pick up on hints the best...clarification may be needed}}$
 
-I like ULTRAKILL, Hollow Knight, Rain World, etc etc im pretty chill and I draw sometimes
+</details>
+</td>
+</tr>
+</table>
+<!-- HOUR 2 -->
+<table>
+<tr>
+<td>
+<details>
+<summary>$\color{#FF0000}{\textsf{INTERESTS}}$</summary>
+ 
+$\color{#ff8080}{\textsf{I like...}}$<br>$\color{#ff8080}{\textsf{GAMES/: ULTRAKILL, Hollow Knight, Rain World, LobCorp, LoR, Limbus Company, Minecraft}}$<br>$\color{#ff8080}{\textsf{WEBSERIES/: AReGect, Collinlock16, SFAWTDE/DAWTDE, MFARG}}$<br>$\color{#ff8080}{\textsf{YOUTUBERS/: Markiplier, Flamingo, Jacksepticeye, etc.}}$
 
-Please view my [RENTRY](https://rentry.co/clairdelune) for more information!!
+</details>
+</td>
+</tr>
+</table>
+<!-- HOUR 3 -->
+<table>
+<tr>
+<td>
+<details>
+<summary>$\color{#FF0000}{\texttt{BYI}}$</summary>
+ 
+$\color{#ff8080}{\texttt{Im kinda awkward around people w partners sometimes,, I been thru alot I cant rlly help it I dont mean it}}$<br>$\color{#ff8080}{\texttt{i promiseee. If you're gonna interact w me just dont be weird its not dat hard it really isnt yo}}$<br><br>$\color{#ff8080}{\texttt{DNI/: 13>, NSFW accounts, Changed fans, basic DNI criteria}}$
 
-*˗ˏˋ **♡** ˎˊ˗*
+</details>
+</td>
+</tr>
+</table>
+
+☠︎︎
 <div></div>
 
 <img src="https://predisasters.neocities.org/Rentry/Ultrakill/Stamps/dect1.png" alt="Dream's End Come True"> <img src="https://predisasters.neocities.org/Rentry/Ultrakill/Stamps/dect2.png" alt="Dream's End Come True">
 
 <div></div>
 
-# **PONY TOWN STUFF!!**
+<table>
+<tr>
+<td>
+<details>
+<summary>$\color{#FF0000}{\texttt{PONY\_TOWN\_INFO}}$</summary>
+ 
+$\color{#ff8080}{\texttt{BOUNDARIES/:}}$<br>$\color{#ff8080}{\texttt{cuddle/C+H ⋮ friends, its chill idgaf}}$<br>$\color{#ff8080}{\texttt{dms/whisps ⋮ anyone yo!!}}$<br><br>$\color{#ff8080}{\texttt{STATUSES/:}}$<br>$\color{#ff8080}{\texttt{Online: Feel free 2 talk to me, might be a BIT busy!}}$<br>$\color{#ff8080}{\texttt{Away: Likely AFK or on another tab, feel free to whisp will reply when I can}}$<br>$\color{#ff8080}{\texttt{Busy: AFK, rare responses}}$<br>$\color{#ff8080}{\texttt{Looking for chat: PLEASE TALK TO ME!! I want to talk to people!!}}$
 
-**BOUNDARIES**
-
-› ***cuddle*** ⋮ friends, its chill idgaf
-
-
-› ***interactions*** ⋮ anyone, but sometimes I may be on a different tab, so you can sit near me and whisper me to try and get my attention, I often don't look at chat unless my full attention is on ponytown if im being honest 😭
-‎‎
-
-› ***dms/whispers*** ⋮ anyone yo its the preferred way to contact me actually
-
-***
-**STATUSES**
-
-***🟢 Online***:
-Free to talk to me, but I might be a little busy, be patient!
-
-***🌙 Away***:
-Likely AFK or doing something on a seperate tab, feel free to whisp, I will try to read it when I get back or if im already there lol
-
-***⛔ Busy***:
-AFK, I will rarely respond.
-
-***💬 Looking for chat***:
-PLEASE TALK TO ME!! I want to talk to people, I'm just very nervous to do so.
+</details>
+</td>
+</tr>
+</table>
 
 ***
+
+![HA](https://predisasters.neocities.org/Rentry/ultrakill-death.gif)
  ![WITHOUT REASON](https://predisasters.neocities.org/Rentry/Ultrakill/2half.png)‎  ‎  
 ![](https://hit.yhype.me/github/profile?account_id=141792883)
