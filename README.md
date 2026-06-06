@@ -1,5 +1,6 @@
 https://rentry.co/clairdelune  
-https://guns.lol/ANTENNASTOHEAVEN
+https://guns.lol/ANTENNASTOHEAVEN  
+https://clairdelune.lurk.me/
 
 https://LIKEANTENNASTOHEAVEN.atabook.org/  
 ↑  
