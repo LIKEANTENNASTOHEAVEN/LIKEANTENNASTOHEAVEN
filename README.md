@@ -1,6 +1,6 @@
 https://rentry.co/clairdelune  
 https://guns.lol/ANTENNASTOHEAVEN  
-https://clairdelune.lurk.me/
+https://onguard.lurk.me/
 
 https://LIKEANTENNASTOHEAVEN.atabook.org/  
 ↑  
@@ -25,7 +25,7 @@ single
 <details>
 <summary>$\color{#FF0000}{\textsf{ABOUT\_ME}}$</summary>
 
-$\color{#ff8080}{\textsf{Hello!! My name is Indo!! but you're free to call me Gabriel or V2 Aswell! I am 16 years old and im a girlll}}$<br>$\color{#ff8080}{\textsf{I draw things!! my twitter is @boombloxxed/@boombloxxedALT if you'd like to see!!}}$<br>$\color{#ff8080}{\textsf{I tend to act a bit mechanical when im tired or so on, be patient w me, but please also don't be weird}}$<br><br>$\color{#ff8080}{\textsf{I'm Neurodivergent and very talkative. I prommy im friendly,, My current Hyperfixation is ULTRAKILL!!}}$<br>$\color{#ff8080}{\textsf{I don't tend to pick up on hints the best...clarification may be needed}}$
+$\color{#ff8080}{\textsf{Hello!! My name is Indo!! but you're free to call me Gabriel or V2 Aswell! I am 16 years old and im a girlll}}$<br>$\color{#ff8080}{\textsf{I draw things!! my twitter is @boombloxxed/@boombloxxedALT if you'd like to see!!}}$<br>$\color{#ff8080}{\textsf{I tend to act a bit mechanical when im tired or so on, be patient w me, but please also don't be weird}}$<br><br>$\color{#ff8080}{\textsf{I'm Neurodivergent and very talkative. I prommy im friendly,, My current Hyperfixations are Among Us and ULTRAKILL!!}}$<br>$\color{#ff8080}{\textsf{I don't tend to pick up on hints the best...clarification may be needed}}$
 
 </details>
 </td>
@@ -38,7 +38,7 @@ $\color{#ff8080}{\textsf{Hello!! My name is Indo!! but you're free to call me Ga
 <details>
 <summary>$\color{#FF0000}{\textsf{INTERESTS}}$</summary>
  
-$\color{#ff8080}{\textsf{I like...}}$<br>$\color{#ff8080}{\textsf{GAMES/: ULTRAKILL, Hollow Knight, Rain World, LobCorp, LoR, Limbus Company, Minecraft}}$<br>$\color{#ff8080}{\textsf{WEBSERIES/: AReGect, Collinlock16, SFAWTDE/DAWTDE, MFARG}}$<br>$\color{#ff8080}{\textsf{YOUTUBERS/: Markiplier, Flamingo, Jacksepticeye, etc.}}$
+$\color{#ff8080}{\textsf{I like...}}$<br>$\color{#ff8080}{\textsf{GAMES/: Among Us, ULTRAKILL, Hollow Knight, Rain World, LobCorp, LoR, Limbus Company, Minecraft}}$<br>$\color{#ff8080}{\textsf{WEBSERIES/: AReGect, Collinlock16, SFAWTDE/DAWTDE, MFARG, The Among Us Show}}$<br>$\color{#ff8080}{\textsf{YOUTUBERS/: Markiplier, Flamingo, Jacksepticeye, etc.}}$
 
 </details>
 </td>
