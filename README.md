@@ -18,8 +18,6 @@ sign my ata yo‎
 
 She// ミ☆ **A**ny  
 single 
-
- <div align="left">
   
 <table>
 <tr>
@@ -60,8 +58,8 @@ $\color{#ff8080}{\texttt{Im kinda awkward around people w partners sometimes,, I
 </tr>
 </table>
 
- <div align="right">
-  
+///
+
 <table>
 <tr>
 <td>
@@ -74,6 +72,8 @@ $\color{#ff8080}{\texttt{BOUNDARIES/:}}$<br>$\color{#ff8080}{\texttt{cuddle/C+H 
 </td>
 </tr>
 </table>
+
+<div align="right">
   
 ![yo mama](https://predisasters.neocities.org/github/ezgif-2e04410f4fbbcc08.gif)
 
