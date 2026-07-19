@@ -1,10 +1,3 @@
-https://LIKEANTENNASTOHEAVEN.atabook.org/  
-↑  
-sign my ata yo‎
- <div align="center">
-  
- ![](https://komarev.com/ghpvc/?username=LIKEANTENNASTOHEAVEN&style=for-the-badge&color=FF0000&abbreviated=true&label=[MESSAGES.RECIEVED] )
- ***
  <div align="left">
   
   <!-- HOUR 1 -->
@@ -52,7 +45,7 @@ $\color{#ff8080}{\texttt{Im kinda awkward around people w partners sometimes,, I
 </tr>
 </table>
 
-///
+ ![](https://komarev.com/ghpvc/?username=LIKEANTENNASTOHEAVEN&style=for-the-badge&color=FF0000&abbreviated=true&label=[MESSAGES.RECIEVED] )
 
 <table>
 <tr>
@@ -70,5 +63,3 @@ $\color{#ff8080}{\texttt{BOUNDARIES/:}}$<br>$\color{#ff8080}{\texttt{cuddle/C+H 
 <div align="right">
   
 ![WAR?](https://predisasters.neocities.org/github/ezgif-2e04410f4fbbcc08.gif)
-
-  ***
