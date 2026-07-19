@@ -1,24 +1,25 @@
-https://rentry.co/clairdelune  
-https://guns.lol/ANTENNASTOHEAVEN  
+https://rentry.co/clairdelune   
 https://onguard.lurk.me/
 
 https://LIKEANTENNASTOHEAVEN.atabook.org/  
 ↑  
-sign my ata yo
- ![WAR](https://predisasters.neocities.org/Rentry/Ultrakill/1half.png)‎  ‎  ‎   ‎  ‎  ‎   ‎  ‎ 
-***
+sign my ata yo‎
  <div align="center">
-
- ![](https://komarev.com/ghpvc/?username=LIKEANTENNASTOHEAVEN&style=for-the-badge&color=FF0000&abbreviated=true&label=[MESSAGES.RECIEVED] )
   
- ‎  ‎  ![LIGHT UP THE NIGHT](https://predisasters.neocities.org/Rentry/Ultrakill/LIGHTUPTHENIGHT.png)
+ ![](https://komarev.com/ghpvc/?username=LIKEANTENNASTOHEAVEN&style=for-the-badge&color=FF0000&abbreviated=true&label=[MESSAGES.RECIEVED] )
+ ***
+ <div align="left">
+  
+  <!-- HOUR 1 -->
+![WAR](https://predisasters.neocities.org/github/071914-ezgif.com-video-to-gif-converter.gif)
+ <div align="center"> 
 
-***‎@boombl****oxxed*//!~*In*do~! + V2 OR GABRIEL!! ⚙️\
+***‎@boombl****oxxed*//!~*In*do~!\
 **1**6
 
 She// ミ☆ **A**ny  
 single 
-  <!-- HOUR 1 -->
+  
 <table>
 <tr>
 <td>
@@ -58,12 +59,7 @@ $\color{#ff8080}{\texttt{Im kinda awkward around people w partners sometimes,, I
 </tr>
 </table>
 
-☠︎︎
-<div></div>
-
-<img src="https://predisasters.neocities.org/Rentry/Ultrakill/Stamps/dect1.png" alt="Dream's End Come True"> <img src="https://predisasters.neocities.org/Rentry/Ultrakill/Stamps/dect2.png" alt="Dream's End Come True">
-
-<div></div>
+***
 
 <table>
 <tr>
@@ -78,8 +74,8 @@ $\color{#ff8080}{\texttt{BOUNDARIES/:}}$<br>$\color{#ff8080}{\texttt{cuddle/C+H 
 </tr>
 </table>
 
-***
+ <div align="right">
+  
+![yo mama](https://predisasters.neocities.org/github/ezgif-2e04410f4fbbcc08.gif)
 
-![HA](https://predisasters.neocities.org/Rentry/ultrakill-death.gif)
- ![WITHOUT REASON](https://predisasters.neocities.org/Rentry/Ultrakill/2half.png)‎  ‎  
-![](https://hit.yhype.me/github/profile?account_id=141792883)
+  ***
