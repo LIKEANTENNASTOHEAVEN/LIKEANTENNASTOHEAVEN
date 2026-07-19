@@ -1,5 +1,3 @@
-https://rentry.co/clairdelune   
-https://onguard.lurk.me/
 https://LIKEANTENNASTOHEAVEN.atabook.org/  
 ↑  
 sign my ata yo‎
