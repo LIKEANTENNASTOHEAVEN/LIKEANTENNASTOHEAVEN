@@ -10,14 +10,10 @@ sign my ata yo‎
  <div align="left">
   
   <!-- HOUR 1 -->
-![WAR](https://predisasters.neocities.org/github/071914-ezgif.com-video-to-gif-converter.gif)
+![WAR!](https://predisasters.neocities.org/github/071914-ezgif.com-video-to-gif-converter.gif)
  <div align="center"> 
 
-***‎@boombl****oxxed*//!~*In*do~!\
-**1**6
-
-She// ミ☆ **A**ny  
-single 
+![@BOOMBLOXXED//INDO](https://predisasters.neocities.org/github/me.png)
   
 <table>
 <tr>
@@ -75,6 +71,6 @@ $\color{#ff8080}{\texttt{BOUNDARIES/:}}$<br>$\color{#ff8080}{\texttt{cuddle/C+H 
 
 <div align="right">
   
-![yo mama](https://predisasters.neocities.org/github/ezgif-2e04410f4fbbcc08.gif)
+![WAR?](https://predisasters.neocities.org/github/ezgif-2e04410f4fbbcc08.gif)
 
   ***
