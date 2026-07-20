@@ -1,4 +1,6 @@
  <div align="left">
+
+ #### DRAWN GORE WARNING FOR THE GIF AT THE BOTTOM!!
   
   <!-- HOUR 1 -->
 ![WAR!](https://predisasters.neocities.org/github/071914-ezgif.com-video-to-gif-converter.gif)
